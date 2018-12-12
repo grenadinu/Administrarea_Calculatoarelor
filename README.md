@@ -1,0 +1,2 @@
+# Administrarea_Calculatoarelor
+Material alternativ
